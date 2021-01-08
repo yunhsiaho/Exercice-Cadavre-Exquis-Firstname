@@ -8,3 +8,5 @@ Sumus tam adultis. Non est enim tibi nescio fingunt. Confusio esse cupio. Scio t
 -tomi
 
 du coup je suis parti dans un chemin et je me suis perdu mais j ai retrouvé mon chemin et la ....
+
+哈哈 可怜的他，但是我祝他圣誕快乐 ！
