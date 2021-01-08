@@ -6,3 +6,5 @@ Santa Claus rode his deer to buy some food. BUT when he arrived at Delhaize, he 
 
 Sumus tam adultis. Non est enim tibi nescio fingunt. Confusio esse cupio. Scio te debeo meae. At etiam, ut caveant ab his eu. In tuo positum, idem fecissem. Constitutione, quam molesta est mihi tres menses nescio quid de contractu fines nostros. Scis quare hoc facere. Lorem satis quaesitum. 
 -tomi
+
+du coup je suis parti dans un chemin et je me suis perdu mais j ai retrouvé mon chemin et la ....
